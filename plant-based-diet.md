@@ -1,5 +1,3 @@
-From: http://www.huntlycentre.com.au/updates/posts/view/59
-
 ## General 
 
 Proper nutrition, exercise, sunshine, rest and positive thinking. Pay attention to all of these, especially sunshine, rest and positive thinking.
@@ -71,3 +69,5 @@ Omega 3 (DHA) up to 1000mg a day.
 Sunlight: we need Vitamin D.
 
 Green Barley Powder is one of the most alkali forming foods.
+
+More details:  http://www.chewfo.com/diets/super-immunity-by-joel-fuhrman-md-2011-what-to-eat-and-foods-to-avoid-food-list/ and http://www.huntlycentre.com.au/updates/posts/view/59
