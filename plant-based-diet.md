@@ -70,4 +70,10 @@ Sunlight: we need Vitamin D.
 
 Green Barley Powder is one of the most alkali forming foods.
 
-More details:  http://www.chewfo.com/diets/super-immunity-by-joel-fuhrman-md-2011-what-to-eat-and-foods-to-avoid-food-list/ and http://www.huntlycentre.com.au/updates/posts/view/59
+## Autoimmune disease protocol
+
+*Do:* Eat a high-nutrient vegan diet, rich in green vegetables, blended salads and/or vegetable juices (utilizing leafy greens), supplement with EPA, DHA, beneficial bowel flora, natural anti-inflammatory substances (turmeric, ginger, quercetin, other bioflavonoids), multivitamin/multimineral, additional vitamin D6
+
+*Avoid:*  salt and foods containing added salt, wheat, oils, concentrated sweet foods
+
+More details:  http://www.chewfo.com/diets/super-immunity-by-joel-fuhrman-md-2011-what-to-eat-and-foods-to-avoid-food-list/ and http://www.huntlycentre.com.au/updates/posts/view/59 and https://www.youtube.com/user/drfuhrman
