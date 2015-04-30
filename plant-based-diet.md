@@ -8,7 +8,7 @@ Proper nutrition, exercise, sunshine, rest and positive thinking. Pay attention 
 
 ## Diet & Food Choices
 
-*DO:* Green veggies, beans, nuts, low fructose fresh fruit, in order.  Periodic fasting is a brilliant way to improve gut -- and overall health.  Always drink plenty of water.
+*DO:* Green veggies, beans, nuts, low fructose fresh fruit, in order.  Periodic fasting is a brilliant way to improve gut -- and overall health.  Always drink plenty of water.  [Full food list with scores](http://www.drfuhrman.com/library/andi-food-scores.aspx)
 
 Vegan/near vegan, unprocessed foods – concentrate on green vegetables, onions, mushrooms, berries, beans, seeds. Kale, watercress, collard greens, swiss chard, bok choy, spinach, arugula, romaine lettuce, brussels sprouts, carrots/carrot juice, cabbage, broccoli, broccolini, cauliflower, red bell peppers, mushrooms, asparagus, tomatoes, leeks, onions, cucumbers, green peas, horseradish.
 
