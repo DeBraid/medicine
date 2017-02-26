@@ -56,6 +56,14 @@ Vinegars, mustards (unsweetened), Bragg Liquid Aminos, low-sodium soy sauce, low
 
 Cereal grains, especially when refined (such as white wheat flour and white rice) are also acid-forming, and are worse than meat.  No salt, wheat (in all forms including wholegrain), or oils.
 
+## Meat
+
+Some meat is OK. 5-20% of calories average adult.  For athletes and physically active individuals consuming more protein is recommended. 
+
+Organ meats are under-appreciated source of nutrient and should be consumed regularly.  Fresh seafood is an excellent food choice.  
+
+For these reasons I don't advocate eliminating or avoiding meat unless you are suffering from severe heart conditions or other cardiovascular diseases, and/or have auto-immune dysfunction (IBS/IBD, skin conditions, etc.  See Autoimmune disease protocol below).
+
 ## Juicing
 
 > Drinking the freshly extracted juices of vegetables is the fastest way to obtain the nutrients necessary to restore the human body to health.
