@@ -58,7 +58,7 @@ Cereal grains, especially when refined (such as white wheat flour and white rice
 
 ## Meat
 
-Some meat is OK. 5-20% of calories average adult.  For athletes and physically active individuals consuming more protein is recommended. 
+Some meat is OK. 5-20% of calories for average adult.  For athletes and physically active individuals consuming more protein is recommended. 
 
 Organ meats are under-appreciated source of nutrient and should be consumed regularly.  Fresh seafood is an excellent food choice.  
 
