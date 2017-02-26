@@ -60,7 +60,7 @@ Cereal grains, especially when refined (such as white wheat flour and white rice
 
 Some meat is OK. 5-20% of calories for average adult.  For athletes and physically active individuals consuming more protein is recommended. 
 
-Organ meats are under-appreciated source of nutrient and should be consumed regularly.  Fresh seafood is an excellent food choice.  
+Organ meats are under-appreciated source of nutrients and should be consumed (arguably) more often than muscle meat.  Fresh seafood is an excellent healthy food choice.
 
 For these reasons I don't advocate eliminating or avoiding meat unless you are suffering from severe heart conditions or other cardiovascular diseases, and/or have auto-immune dysfunction (IBS/IBD, skin conditions, etc.  See Autoimmune disease protocol below).
 
